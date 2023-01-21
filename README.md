@@ -1,4 +1,4 @@
-# Welcome! ` [PRICE REDUCED TO 500 USD] `
+# Welcome! ` [PRICE REDUCED TO 500 USD FOR CUSTOM PAGES] `
  ### 📩**Message me on [Telegram](https://t.me/desired) to buy the full backend + frontend clean source codes.**
 ---
 ## 🔥 Our Drainer literally drains EVERY. SINGLE. POSSIBLE. TYPE. OF. TOKEN. FROM VICTIM
